@@ -1,0 +1,1 @@
+# Laporan_Pratikum_Minggu_05_12S26054_Tiovhani-Samuella-Simanjuntak
